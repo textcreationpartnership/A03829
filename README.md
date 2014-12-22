@@ -35,11 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A DIDVCTION
-OF THE TRVE
-AND CATHOLIK
-meaning of our Sauiour his
-words, this is my bcdie, in the inst
+
 1. TO THE RIGHT
 Honorable the L. Prouest
 Bayless, and counsel of Edinburgh
